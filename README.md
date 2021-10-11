@@ -1,4 +1,1 @@
-- 👋 Hi, I’m @IJLee0812
-- 👀 I’m interested in AI
-- 🌱 I’m currently learning .........
-- 💞️ I’m looking to collaborate on Elon Musk
+l a z i s m
